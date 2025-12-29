@@ -6,22 +6,29 @@
 
 ![](https://64.media.tumblr.com/b651f6de897c36f88229640911b87540/67b3e5986da90d63-c4/s400x600/d6753404af61342ffda59c4e98a9ab0a0d67d69a.pnj)
 
-## <p align="center" >𝒂𝒃𝒐𝒖𝒕 𝒎𝒘𝒆!</p>
-<p align="center"> 𝓶𝓲𝓶𝓲 ' 𝓻𝓲𝓬𝓱𝓲𝓮  </p>
-<p align="center"> 6𝓽𝓮𝓮𝓷 + 𝓯𝓮𝓶 𝓸𝓻𝓼 𝓶𝓪𝓵𝓮 (𝓻𝓪𝓻𝓮)
-<p align="center">   𝓢𝓱𝓮 ' 𝓗𝓲𝓶 ' 𝓗𝔂𝓶
-<p align="center"> 𝓬+𝓱 | 𝓲𝔀𝓬! | 𝓷𝓿 𝓪𝓽 𝓯𝓲𝓻𝓼𝓽 𝓶𝓮𝓮𝓽 | 𝓙𝓾𝓼𝓽 𝓘𝓦𝓒 𝓹𝓵𝓮𝓪𝓼𝓮!۶ৎ !
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=94d8f4&center=true&width=435&lines=%E2%80%98Crazy+Together+Right?%E2%80%99"/> </p>
+<p align="center">${\textsf{\color{#1e7ac1} ɳσ.1 ɱιƙҽ ɯԋҽҽʅҽɾ | ραʅαԃιɳ | σɯɱ :: ɱιƙҽ ƙιɳɳҽɾ! ♡ }}$
 
-![](https://64.media.tumblr.com/b651f6de897c36f88229640911b87540/67b3e5986da90d63-c4/s400x600/d6753404af61342ffda59c4e98a9ab0a0d67d69a.pnj)
-  
+<p align="center">${\textsf{\color{#86c3ed} ʂԋҽ ' ԋιɱ | Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
+<p align="center">${\textsf{\color{#1e7ac1} ɳʋ αʅσƚ | ιɯƈ! | ʋҽɾყ ʂԋყ | Ⴆყʅҽɾ ϝαɳʂ αʅɯαყʂ ρʅʂ ιɳƚ! | ʝυʂƚ Ⴆҽ ɳιƈҽ :3  }}$
+<p align="center">${\textsf{\color{#5399cd} ιɳƚ! :: ɱყ ϝɾιҽɳԃʂ | ραɾƚɳҽɾʂ | ɱყ ϝαɳԃσɱʂ | Ⴆყʅҽɾ ϝαɳʂ! | ԃɳι. :: ʂσɱҽ. ɱιʅҽʋҽɳ ʂƚαɳʂ | ԃαɾƙʂԋιρρҽɾʂ | ʂԋ0ƚ4ʂ/ʅ0ʅ1'ʂ/ƙ0ԃ4'ʂ. | ιɳƈҽʅʂ | ȥσσʂ/ɱαρʂ | (υϝ)αԃυʅƚʂ  }}$
 
-𝓘𝓷𝓽 𝓛𝓲𝓼𝓽 ~ 𝓜𝔂 𝓕𝓪𝓷𝓭𝓸𝓶'𝓼 ' 𝓜𝔂 𝓛𝓸𝓿𝓮𝓻𝓼 \ 𝓑𝓼𝓯𝓼! ' 𝓝𝓲𝓬𝓮 𝓟𝓮𝓸𝓹𝓵𝓮! | 𝓓𝓷𝓲 𝓛𝓲𝓼𝓽 ~ 𝓼𝓸𝓶𝓮 𝓟𝓻𝓸 \ 𝓓𝓪𝓻𝓴𝓼𝓱𝓲𝓹𝓹𝓮𝓻𝓼 ' 𝓐𝓵𝓽-𝓡𝓲𝓰𝓱𝓽 ' 𝓩𝓸𝓸𝓼, 𝓟3𝓭𝓸𝓼/𝓰𝓻00𝓶3𝓻𝓼, 𝓹𝓮𝓸𝓹𝓵𝓮 𝔀𝓱𝓸 𝓶𝓪𝓴𝓮 𝓯𝓾𝓷 𝓸𝓯 𝓜𝓗/𝓣𝓻𝓪𝓾𝓶𝓪, 𝓗𝓸𝓶𝓸𝓹𝓱𝓸𝓫𝓮𝓼
-
-𝓕𝓪𝓷𝓭𝓸𝓶𝓼 ; 𝓖𝓵𝓮𝓮 | 𝓢𝓽𝓻𝓪𝓷𝓰𝓮𝓻 𝓣𝓱𝓲𝓷𝓰𝓼 | 𝓞𝓷𝓮 𝓦𝓱𝓮𝓪𝓽 𝓜𝓪𝓻𝓴 | 𝓗𝓪𝔃𝓫𝓲𝓷 𝓗𝓸𝓽𝓮𝓵 | 𝓗𝓮𝓵𝓵𝓾𝓿𝓪 𝓑𝓸𝓼𝓼 | 𝓟𝓮𝓷15 | 𝓘 𝓐𝓶 𝓝𝓸𝓽 𝓞𝓴𝓪𝔂 𝓦𝓲𝓽𝓱 𝓣𝓱𝓲𝓼 | 𝓘𝓣 | 𝓘𝓣 : 𝓦𝓮𝓵𝓬𝓸𝓶𝓮 𝓽𝓸 𝓓𝓮𝓻𝓻𝔂 | 𝓜𝔂 𝓛𝓲𝓽𝓽𝓵𝓮 𝓟𝓸𝓷𝔂 | 𝓦𝓲𝓬𝓴𝓮𝓭 | 𝓗𝓮𝓪𝓽𝓱𝓮𝓻𝓼 | 𝒯𝒽𝑒 𝐵𝓁𝒶𝒸𝓀 𝒫𝒽𝑜𝓃𝑒 | 𝒯𝒽𝑒 𝒢𝑜𝓁𝒹𝒻𝒾𝓃𝒸𝒽 | 𝒢𝒽𝑜𝓈𝓉𝒷𝓊𝓈𝓉𝑒𝓇 : 𝒜𝒻𝓉𝑒𝓇𝓁𝒾𝒻𝑒 | 𝒯𝒽𝑒 𝒯𝓊𝓇𝓃𝒾𝓃𝑔 | 𝒪𝓃𝑒 𝐻𝑒𝓁𝓁 𝑜𝒻 𝒶 𝒮𝓊𝓂𝓂𝑒𝓇 𝓓𝓪𝓷𝓭𝔂'𝓼 𝓦𝓸𝓻𝓵𝓭 | 𝓔𝓷𝓸𝓵𝓪 𝓗𝓸𝓵𝓶𝓮𝓼 | 𝓒𝓸𝓸𝓴𝓮 𝓡𝓾𝓷 : 𝓚𝓲𝓷𝓰𝓭𝓸𝓶 | 𝓥𝓸𝓬𝓪𝓵-𝓵𝓸𝓲𝓭 | 𝓕𝓾𝓻𝓻𝔂/𝓚𝓮𝓶𝓸𝓷𝓸𝓶𝓲𝓶𝓲 | 𝓓𝓢𝓜𝓟 | 𝓠𝓢𝓜𝓟 | 𝓗𝓐𝓘𝓚𝓨𝓤! | 𝓣𝔂𝓵𝓮𝓻, 𝓽𝓱𝓮 𝓒𝓻𝓮𝓪𝓽𝓸𝓻 | 𝓕𝓲𝓷𝓪𝓵 𝓓𝓮𝓼𝓽𝓲𝓷𝓪𝓽𝓲𝓸𝓷 | 𝓣𝓱𝓮 𝓞𝔀𝓵 𝓗𝓸𝓾𝓼𝓮 |𝓖𝓻𝓪𝓿𝓲𝓽𝔂 𝓕𝓪𝓵𝓵𝓼 | 𝓟𝓪𝓷𝓽𝔂 𝓪𝓷𝓭 𝓢𝓽𝓸𝓬𝓴𝓲𝓷𝓰 : 𝓦𝓲𝓽𝓱 𝓖𝓪𝓻𝓽𝓮𝓻𝓫𝓮𝓵𝓽! | 𝓗𝓮𝓪𝓻𝓽𝓼𝓽𝓸𝓹𝓹𝓮𝓻 | 𝓜𝓸𝓷𝓼𝓽𝓮𝓻 𝓗𝓲𝓰𝓱 | 𝓑𝓪𝓻𝓫𝓲𝓮 : 𝓛𝓲𝓯𝓮 𝓲𝓷 𝓽𝓱𝓮 𝓓𝓻𝓮𝓪𝓶𝓱𝓸𝓾𝓼𝓮  .𖥔
-
-
-![](https://64.media.tumblr.com/b651f6de897c36f88229640911b87540/67b3e5986da90d63-c4/s400x600/d6753404af61342ffda59c4e98a9ab0a0d67d69a.pnj)
-
-## <p align="center" > 𝓑𝓪𝓲𝓲!!</p>
-
-![](https://64.media.tumblr.com/ede0385a51e61644fefd162f9b7f619b/66053529b056fc6f-93/s540x810/951c551c9b262d4648dc24ec508824d49471c726.gif)
+***
+<p align="center">${\textsf{\color{#bdedfb} ʂƚαɱρʂ + Ⴆʅιɳƙιҽʂ!:3 }}$
+   </a>
+</p>
+<img width="1092" height="211" alt="image" src="https://github.com/user-attachments/assets/0e906014-dc88-456e-8095-b756a04c2501" />
+<img width="1170" height="246" alt="image" src="https://github.com/user-attachments/assets/726339c5-4b2d-4fc6-8131-a15c99750953" />
+<img width="1000" height="202" alt="image" src="https://github.com/user-attachments/assets/cae5d35c-737b-4ecd-b999-f25f6a84709e" />
+<img width="1196" height="246" alt="image" src="https://github.com/user-attachments/assets/fcaf02e7-c321-4d38-93ee-f11b5373103c" />
+<img width="1080" height="228" alt="image" src="https://github.com/user-attachments/assets/419d6051-9e31-48d0-bf99-baa329c1d6c8" />
+<img width="1170" height="231" alt="image" src="https://github.com/user-attachments/assets/49e75c6f-74fd-456e-b831-dfb48af009a3" />
+<img width="1113" height="225" alt="image" src="https://github.com/user-attachments/assets/6cb5afa1-cc54-4e03-9dcc-a6a00a4d7f19" />
+<img width="1092" height="211" alt="image" src="https://github.com/user-attachments/assets/130f8019-410f-45e1-a31e-52d222865dc3" />
+<img width="1200" height="245" alt="image" src="https://github.com/user-attachments/assets/b51ec723-d06f-47cd-a529-264ff366816c" />
+<img width="1200" height="240" alt="image" src="https://github.com/user-attachments/assets/a9539559-088d-4ca0-9aa9-ed225cbbbce5" />
+<img width="1195" height="245" alt="image" src="https://github.com/user-attachments/assets/93fd4dad-0010-47d3-b38e-06bd5fc6b125" />
+<img width="1094" height="224" alt="image" src="https://github.com/user-attachments/assets/21ea8ff6-d79b-4b01-828f-4054d9eb71b8" />
+<img width="1200" height="245" alt="image" src="https://github.com/user-attachments/assets/1bba4035-c0d3-454b-9dbb-e6e84a9d722c" />
+<img width="1200" height="373" alt="image" src="https://github.com/user-attachments/assets/ac406d67-6c25-43db-bdc4-c8482c11b6f8" />
+<img width="1200" height="247" alt="image" src="https://github.com/user-attachments/assets/eb60d6a8-5a15-4b26-a968-0d6eb55c869e" />
