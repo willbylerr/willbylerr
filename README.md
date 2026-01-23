@@ -1,13 +1,8 @@
-<img src="https://komarev.com/ghpvc/?username=kurtzzworld96-username&color=569fac&style=round&label=Byler+Babies<3&abreviated=true">
+center>> <img width="736" height="552" alt="image" src="https://github.com/user-attachments/assets/50e8b650-bfb9-477f-86c1-49b051edf0f5" />
 
-![](https://64.media.tumblr.com/e098d319ac016b3dc5d8acbdf929b361/67b3e5986da90d63-ef/s400x600/48581c0c324cfb2ee163cff772b6861e848fb73d.pnj)
 
-![](https://64.media.tumblr.com/06ee63518239782fe8a1ceff4218dbc1/8b8f801337246af9-3e/s400x600/34ce216c6dfc77169a553b098120fe2bfe9305b7.gifv) 
-
-![](https://64.media.tumblr.com/b651f6de897c36f88229640911b87540/67b3e5986da90d63-c4/s400x600/d6753404af61342ffda59c4e98a9ab0a0d67d69a.pnj)
-
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=94d8f4&center=true&width=435&lines=%E2%80%98Crazy+Together+Right?%E2%80%99"/> </p>
-<p align="center">${\textsf{\color{#1e7ac1} ɳσ.1 ɱιƙҽ ɯԋҽҽʅҽɾ | ραʅαԃιɳ | σɯɱ :: ɱιƙҽ ƙιɳɳҽɾ! ♡ }}$
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=94d8f4&center=true&width=435&lines=%E2%80%98HOT+'N+COLD%E2%80%99"/> </p>
+<p align="center">${\textsf{\color{#1e7ac1} ɳσ.1 αʅҽʝαɳԃɾσ | ɱιƙҽ ɯԋҽҽʅҽɾ | ραʅαԃιɳ | σɯɱ :: ɱιƙҽ ƙιɳɳҽɾ! ♡ }}$
 
 <p align="center">${\textsf{\color{#86c3ed} ʂԋҽ ' ԋιɱ | Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
 <p align="center">${\textsf{\color{#1e7ac1} ɳʋ αʅσƚ | ιɯƈ! | ʋҽɾყ ʂԋყ | Ⴆყʅҽɾ ϝαɳʂ αʅɯαყʂ ρʅʂ ιɳƚ! | ʝυʂƚ Ⴆҽ ɳιƈҽ :3  }}$
