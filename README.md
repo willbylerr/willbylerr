@@ -2,11 +2,11 @@ center>> <img width="736" height="552" alt="image" src="https://github.com/user-
 
 
 <p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=94d8f4&center=true&width=435&lines=%E2%80%98HOT+'N+COLD%E2%80%99"/> </p>
-<p align="center">${\textsf{\color{#1e7ac1} ɳσ.1 αʅҽʝαɳԃɾσ | ɱιƙҽ ɯԋҽҽʅҽɾ | ραʅαԃιɳ | σɯɱ :: ɱιƙҽ ƙιɳɳҽɾ! ♡ }}$
+<p align="center">${\textsf{\color{#802b5b} ɳσ.1 αʅҽʝαɳԃɾσ | ɱιƙҽ ɯԋҽҽʅҽɾ | ραʅαԃιɳ | σɯɱ :: ɱιƙҽ ƙιɳɳҽɾ! ♡ }}$
 
-<p align="center">${\textsf{\color{#86c3ed} ʂԋҽ ' ԋιɱ | Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
-<p align="center">${\textsf{\color{#1e7ac1} ɳʋ αʅσƚ | ιɯƈ! | ʋҽɾყ ʂԋყ | Ⴆყʅҽɾ ϝαɳʂ αʅɯαყʂ ρʅʂ ιɳƚ! | ʝυʂƚ Ⴆҽ ɳιƈҽ :3  }}$
-<p align="center">${\textsf{\color{#5399cd} ιɳƚ! :: ɱყ ϝɾιҽɳԃʂ | ραɾƚɳҽɾʂ | ɱყ ϝαɳԃσɱʂ | Ⴆყʅҽɾ ϝαɳʂ! | ԃɳι. :: ʂσɱҽ. ɱιʅҽʋҽɳ ʂƚαɳʂ | ԃαɾƙʂԋιρρҽɾʂ | ʂԋ0ƚ4ʂ/ʅ0ʅ1'ʂ/ƙ0ԃ4'ʂ. | ιɳƈҽʅʂ | ȥσσʂ/ɱαρʂ | (υϝ)αԃυʅƚʂ  }}$
+<p align="center">${\textsf{\color{#aa405b} ʂԋҽ ' ԋιɱ | Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
+<p align="center">${\textsf{\color{#d46059} ɳʋ αʅσƚ | ιɯƈ! | ʋҽɾყ ʂԋყ | Ⴆყʅҽɾ ϝαɳʂ αʅɯαყʂ ρʅʂ ιɳƚ! | ʝυʂƚ Ⴆҽ ɳιƈҽ :3  }}$
+<p align="center">${\textsf{\color{#fea775} ιɳƚ! :: ɱყ ϝɾιҽɳԃʂ | ραɾƚɳҽɾʂ | ɱყ ϝαɳԃσɱʂ | Ⴆყʅҽɾ ϝαɳʂ! | ԃɳι. :: ʂσɱҽ. ɱιʅҽʋҽɳ ʂƚαɳʂ | ԃαɾƙʂԋιρρҽɾʂ | ʂԋ0ƚ4ʂ/ʅ0ʅ1'ʂ/ƙ0ԃ4'ʂ. | ιɳƈҽʅʂ | ȥσσʂ/ɱαρʂ | (υϝ)αԃυʅƚʂ  }}$
 
 ***
 <p align="center">${\textsf{\color{#bdedfb} ʂƚαɱρʂ + Ⴆʅιɳƙιҽʂ!:3 }}$
