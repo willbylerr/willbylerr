@@ -9,7 +9,7 @@ center>> <img width="736" height="552" alt="image" src="https://github.com/user-
 <p align="center">${\textsf{\color{#fea775} ιɳƚ! :: ɱყ ϝɾιҽɳԃʂ | ραɾƚɳҽɾʂ | ɱყ ϝαɳԃσɱʂ | Ⴆყʅҽɾ ϝαɳʂ! | ԃɳι. :: ʂσɱҽ. ɱιʅҽʋҽɳ ʂƚαɳʂ | ԃαɾƙʂԋιρρҽɾʂ | ʂԋ0ƚ4ʂ/ʅ0ʅ1'ʂ/ƙ0ԃ4'ʂ. | ιɳƈҽʅʂ | ȥσσʂ/ɱαρʂ | (υϝ)αԃυʅƚʂ  }}$
 
 ***
-<p align="center">${\textsf{\color{#bdedfb} ʂƚαɱρʂ + Ⴆʅιɳƙιҽʂ!:3 }}$
+<p align="center">${\textsf{\color{#802b5b} ʂƚαɱρʂ + Ⴆʅιɳƙιҽʂ!:3 }}$
    </a>
 </p>
 <img width="1092" height="211" alt="image" src="https://github.com/user-attachments/assets/0e906014-dc88-456e-8095-b756a04c2501" />
