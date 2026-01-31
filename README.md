@@ -1,7 +1,7 @@
-   <img width="736" height="552" alt="image" src="https://github.com/user-attachments/assets/50e8b650-bfb9-477f-86c1-49b051edf0f5" />
+<img width="1046" height="1021" alt="image" src="https://github.com/user-attachments/assets/3c092225-2ce5-4c51-a30b-cb0bf2f6e1aa" />
 
 
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=56194f&center=true&width=435&lines=%E2%80%98HOT+'N+COLD%E2%80%99"/> </p>
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=56194f&center=true&width=435&lines=%E2%80%98Gotta+Case+Of+Love+Bipolar!%E2%80%99"/> </p>
 <p align="center">${\textsf{\color{#802b5b} ɳσ.1 αʅҽʝαɳԃɾσ | ɱιƙҽ ɯԋҽҽʅҽɾ | ραʅαԃιɳ | σɯɱ :: ɱιƙҽ ƙιɳɳҽɾ! ♡ }}$
 
 <p align="center">${\textsf{\color{#aa405b} ʂԋҽ ' ԋιɱ | Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
