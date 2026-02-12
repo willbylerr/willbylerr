@@ -1,3 +1,9 @@
+ https://mimisrsshi.straw.page
+<p align="center">${\textsf{\color{#802b5b} please read / srs. }}$
+   </a>
+</p>
+
+***
 <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/430779c6-eac0-4a1d-964e-8b5bcc48ec85" />
 
 <p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=56194f&center=true&width=435&lines=%E2%80%98That+Fucked+Up+Girl!%E2%80%99"/> </p>
