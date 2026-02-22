@@ -4,17 +4,19 @@
 </p>
 
 ***
-<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/430779c6-eac0-4a1d-964e-8b5bcc48ec85" />
+<img width="1024" height="768" alt="image" src="https://github.com/user-attachments/assets/60289fb8-1f00-4aff-bb12-2eb1695ca0cf" />
 
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=56194f&center=true&width=435&lines=%E2%80%98That+Fucked+Up+Girl!%E2%80%99"/> </p>
-<p align="center">${\textsf{\color{#802b5b} ɳσҽʅ ɠɾυႦႦҽɾ | ɱσɳιϙυҽ  | ɱιƙҽ ɯԋҽҽʅҽɾ | ραʅαԃιɳ | σɯɱ :: ɱιƙҽ ƙιɳɳҽɾ! ♡ }}$
 
-<p align="center">${\textsf{\color{#aa405b} ʂԋҽ ' ԋιɱ | Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
-<p align="center">${\textsf{\color{#d46059} ɳʋ αʅσƚ | ιɯƈ! | ʋҽɾყ ʂԋყ | Ⴆყʅҽɾ ϝαɳʂ αʅɯαყʂ ρʅʂ ιɳƚ! | ʝυʂƚ Ⴆҽ ɳιƈҽ :3  }}$
-<p align="center">${\textsf{\color{#fea775} ιɳƚ! :: ɱყ ϝɾιҽɳԃʂ | ραɾƚɳҽɾʂ | ɱყ ϝαɳԃσɱʂ | Ⴆყʅҽɾ ϝαɳʂ! | ԃɳι. :: ʂσɱҽ. ɱιʅҽʋҽɳ ʂƚαɳʂ | ԃαɾƙʂԋιρρҽɾʂ | ʂԋ0ƚ4ʂ/ʅ0ʅ1'ʂ/ƙ0ԃ4'ʂ. | ιɳƈҽʅʂ | ȥσσʂ/ɱαρʂ | (υϝ)αԃυʅƚʂ  }}$
+
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=cb80c0&center=true&width=435&lines=%E2%80%98That+Fucked+Up+Girl!%E2%80%99"/> </p>
+<p align="center">${\textsf{\color{#3ecace} ɳσҽʅ ɠɾυႦႦҽɾ | ɱσɳιϙυҽ  | ɱιƙҽ ɯԋҽҽʅҽɾ | ραʅαԃιɳ | σɯɱ :: ɱιƙҽ ƙιɳɳҽɾ! ♡ }}$
+
+<p align="center">${\textsf{\color{#9fafdd} ʂԋҽ ' ԋιɱ | Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
+<p align="center">${\textsf{\color{#8fedea} ɳʋ αʅσƚ | ιɯƈ! | ʋҽɾყ ʂԋყ | Ⴆყʅҽɾ ϝαɳʂ αʅɯαყʂ ρʅʂ ιɳƚ! | ʝυʂƚ Ⴆҽ ɳιƈҽ :3  }}$
+<p align="center">${\textsf{\color{#5e4d81} ιɳƚ! :: ɱყ ϝɾιҽɳԃʂ | ραɾƚɳҽɾʂ | ɱყ ϝαɳԃσɱʂ | Ⴆყʅҽɾ ϝαɳʂ! | ԃɳι. :: ʂσɱҽ. ɱιʅҽʋҽɳ ʂƚαɳʂ | ԃαɾƙʂԋιρρҽɾʂ | ʂԋ0ƚ4ʂ/ʅ0ʅ1'ʂ/ƙ0ԃ4'ʂ. | ιɳƈҽʅʂ | ȥσσʂ/ɱαρʂ | (υϝ)αԃυʅƚʂ  }}$
 
 ***
-<p align="center">${\textsf{\color{#802b5b} ʂƚαɱρʂ + Ⴆʅιɳƙιҽʂ!:3 }}$
+<p align="center">${\textsf{\color{#fbc2cd} ʂƚαɱρʂ + Ⴆʅιɳƙιҽʂ!:3 }}$
    </a>
 </p>
 <img width="1092" height="211" alt="image" src="https://github.com/user-attachments/assets/0e906014-dc88-456e-8095-b756a04c2501" />
