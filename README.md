@@ -1,9 +1,4 @@
- https://mimisrsshi.straw.page
-<p align="center">${\textsf{\color{#802b5b} please read / srs. }}$
-   </a>
-</p>
 
-***
 <img width="1024" height="768" alt="image" src="https://github.com/user-attachments/assets/60289fb8-1f00-4aff-bb12-2eb1695ca0cf" />
 
 
