@@ -4,7 +4,7 @@
 
 
 <p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=cb80c0&center=true&width=435&lines=%E2%80%98Hes+My+Man!%E2%80%99"/> </p>
-<p align="center">${\textsf{\color{#3ecace} ɳσҽʅ ɠɾυႦႦҽɾ | ɱσɳιϙυҽ  | ɱιƙҽ ɯԋҽҽʅҽɾ | ραʅαԃιɳ | σɯɱ :: ɱιƙҽ ƙιɳɳҽɾ! ♡ }}$
+<p align="center">${\textsf{\color{#3ecace}  ɱιƙҽ ɯԋҽҽʅҽɾ | ραʅαԃιɳ | σɯɱ :: ɱιƙҽ ƙιɳɳҽɾ! ♡ }}$
 
 <p align="center">${\textsf{\color{#9fafdd} ʂԋҽ ' ԋιɱ | Ⴆҽɾɾιʂҽxυαʅ + ρσʅყαɱσɾσυʂ | ƚαƙҽɳ :3 }}$
 <p align="center">${\textsf{\color{#8fedea} ɳʋ αʅσƚ | ιɯƈ! | ʋҽɾყ ʂԋყ | Ⴆყʅҽɾ ϝαɳʂ αʅɯαყʂ ρʅʂ ιɳƚ! | ʝυʂƚ Ⴆҽ ɳιƈҽ :3  }}$
