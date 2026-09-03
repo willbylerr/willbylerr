@@ -1,24 +1,23 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=katewoon&color=FF698A&label=maxs+kisses!)
+![](https://komarev.com/ghpvc/?username=katewoon&color=E599A2&label=diary+entries!)
 
-<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/4715fdd9-eb50-4e2c-8164-f85db34cbb56" />
-
-
+<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/a5d0c486-9c25-4385-8e3d-726183011c4f" />
 
 
 
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=C87792&center=true&width=435&lines=%E2%80%98Video+Game+Luvr!!%E2%80%99"/> </p>
 
- 𓏲⠀ ：ྀི   mimi   '  miles ⠀ ̣̣̣ ͜𓏫
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=945A9E&center=true&width=435&lines=%E2%80%98Dead+Girl+Walking!!%E2%80%99"/> </p>
+
+ 𓏲⠀ ：ྀི   mimi   '  alexis ⠀ ̣̣̣ ͜𓏫
  ⠀⠀⠀  ۪    𓏼 ͜͜  ꔫ      Ꮺ   .     he╱she⠀! ⠀⠀⠀⠀.
 
  ⠀⠀⠀⠀⠀：my malewife ; spawndrawzz⠀　𓏴⠀ ⁰⁰ ⁰⁰
-      ˚₊‧꒰ა my husband!; puptrickz ໒꒱ ‧₊
-۪    𓏼 ͜͜  ꔫ my husband/max ; neonguuttz
+      ˚₊‧꒰ა my husband/heather m!; puptrickz ໒꒱ ‧₊
+۪    𓏼 ͜͜  ꔫ my husband/jd ; neonguuttz
 
    
-   𓏵  　　 ﹒　 　int   :　　  kateron atans : dsmp/qsmp stans  :  heated rivalry fans :  stranger things fans : 
+   𓏵  　　 ﹒　 　int   :　　  kateron stans : dsmp/qsmp stans  :  heated rivalry fans :  stranger things fans : 
    
    pumpkin duo stans :  byler stans : hollanov stans : needyoursauce
    
@@ -35,6 +34,4 @@
 
 　　　　　(..◜ᴗ◝..)　　bye　　⋌　　bye!! 　﹒　
 
-
-<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/20d926f7-7da3-4783-9ec1-ca38a56359b7" />
-
+<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/8c23142d-e0e4-409f-b759-c3010f39f56d" />
